@@ -4,7 +4,7 @@
 <P align="center" >
 👻HI BUDDY 👻<BR>
 
-<I><B>I AM ALSO A STUDENT OF CLASS 10TH 🙂😅 <BR>
+<I><B>I AM ALSO A STUDENT OF CLASS 11TH 🙂😅 <BR>
 
 
 
